@@ -1,0 +1,4 @@
+- oi, meu nome é Ranielly.
+- Eu gosto de ler, jogar com os meus amigos, dormir, comer e passear.
+- Eu tenho 15 anos.
+- Minha cor favorita é Azul, Branco e preto.
